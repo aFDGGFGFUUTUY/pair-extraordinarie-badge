@@ -1,1 +1,0 @@
-# pair-extraordinarie-badge
